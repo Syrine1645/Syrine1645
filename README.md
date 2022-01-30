@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Syrine1645
 - 👀 I’m interested in many things 
 - 🌱 I’m currently learning english
-- 💞️ I’m looking to collaborate on interesting projecteur where i can ne créative
+- 💞️ I’m looking to collaborate on interesting project where i can ne créative
 - 📫 How to reach me ...
 
 <!---
